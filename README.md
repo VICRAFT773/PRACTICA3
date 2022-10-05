@@ -1,2 +1,0 @@
-# PRACTICA3
- 
